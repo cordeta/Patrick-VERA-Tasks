@@ -4,7 +4,7 @@ Sample :
 
 
 
-"AKO AY ISANG SIRENA" 
+"i"m a Mermaid" 
 
 After natranslate nimo i-edit ang sa ilalum 
 
